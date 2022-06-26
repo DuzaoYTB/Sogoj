@@ -1,2 +1,2 @@
-Olá mundo
-Aqui estarei postando Scripts para que possa ajudar vocês, espero que gostem.
+Hey Guys, that`s okay ?
+Here I will be posting Scripts so that I can help you, I hope you like it.
